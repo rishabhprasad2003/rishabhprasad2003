@@ -1,3 +1,5 @@
+![logo](https://github.com/rishabhprasad2003/rishabhprasad2003/blob/main/Untitled%20design.png)
+
 <h1 align="center">Hi 👋, I'm Rishabh Prasad</h1>
 <h3 align="center">A passionate Data Science Enthusiast from India.</h3>
 
