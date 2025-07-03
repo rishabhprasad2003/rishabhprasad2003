@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **prasadrishabh38@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Gu_TpMlIy5ptUUvfJ5mEBTT5ShhlHz97/view?usp=drive_link](https://drive.google.com/file/d/1Gu_TpMlIy5ptUUvfJ5mEBTT5ShhlHz97/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1O9Mp0SAzPIPNUAdxk7tK91ytP8eUb5D_/view?usp=sharing](My Resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
